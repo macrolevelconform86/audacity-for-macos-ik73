@@ -1,4 +1,4 @@
-# 
+# Audacity for macOS secure Effect: AI-upscaling & subtitle-generator is the best Audacity for macOS effect, featuring AI-upscaling and subtitle-generator. Safe, efficient, and
 
 
 
